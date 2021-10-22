@@ -1,4 +1,5 @@
-# Created by Alabhya(https://www.instagram.com/aealabs/)
+# Created by Alabhya
+(https://www.instagram.com/aealabs/)
 
 # Inspiration:
 
